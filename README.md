@@ -1,2 +1,6 @@
 # hello-world
 Just a few wordsabout me
+Dotée d'un parcours atypique en tant que comédienne, étudiante en philosophie à un haut niveau à la Sorbonne, formatrice dans différentes disciplines littéraires (philosophie, français, anglais et histoire-géographie) et responsable SRM dans une enseigne leader de e-commerce (vente-privee.com). Je souhaiterai partager mes connaissances dans les métiers de l'écrit qui peuvent se mettre au service des secteurs commerciaux. Ainsi tout en valorisant les produits, je saurai apporter aux descriptifs cette touche unique qui permettra aux taux de transformation de s'accroître tout en permettant une meilleure visibilité de la marque. 
+J'ai travaillé en ce sens avec différentes institutions (commerce, EHPAD, associations, etc.) un maître parfumeur et me ferai un plaisir de vous transmettre mon book d'écrivaine publique.
+Je relis tous types de travaux, vous aide sur la conceptualisation et la mise en page. 
+J'assure également depuis des années des formations individuelles et collectives dans différentes matières littéraires. Ma formation et mon expérience de comédienne me permettent également de vous coacher pour toutes prises de paroles allant de l'entretien à la présentation de projet en séminaire ou réunions d'entreprises. 
